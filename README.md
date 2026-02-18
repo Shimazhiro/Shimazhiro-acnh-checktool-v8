@@ -1,0 +1,1 @@
+# Shimazhiro-acnh-checktool-v8
